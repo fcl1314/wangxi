@@ -1,4 +1,4 @@
-## 傻逼锤子
+## 王茜最好看
 
 You can use the [editor on GitHub](https://github.com/fcl1314/wangxi/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
